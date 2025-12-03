@@ -1,1 +1,1 @@
-https://github.com/quexzz/ono-tebe-nado
+(https://github.com/quexzz/slozhno-sosredotochitsya-ad
