@@ -1,1 +1,2 @@
-(https://github.com/quexzz/slozhno-sosredotochitsya-ad
+https://github.com/quexzz/slozhno-sosredotochitsya-ad
+
